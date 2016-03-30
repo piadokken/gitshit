@@ -4,4 +4,6 @@ Fuck you!
 
 espen er dum
 
-Jeg er fin, hihihihi
+bajs
+
+LOLOLOLOL
